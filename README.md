@@ -1,0 +1,1 @@
+thanks raji for categorizing as Mr. Sidrak instructed. you forget to edit your link after categorizing but i corrected it. i'm about to finish exam pages and then continue to game or calculator, so ask durressa and help him with clock assignment
